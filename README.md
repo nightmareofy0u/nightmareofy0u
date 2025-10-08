@@ -14,11 +14,11 @@
 
 ${{\color{#f5eee4}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen}}}$
 
-${{\color{#f5eee4}\texttt{lesbian⠀⠀　adhd⠀⠀　two spirited}}}$
+${{\color{#f5eee4}\texttt{lesbian⠀⠀　adhd⠀⠀　two⠀spirited}}}$
 
 ${{\color{#827b72}\texttt{──　──　──　⊹　──　──　──}}}$
 
-${{\color{#f5eee4}\texttt{im quiet⠀　mostly w2i⠀　fujoshi , himeoshi}}}$
+${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　fujoshi , himeoshi}}}$
 
 ${{\color{#f5eee4}\texttt{comshipper⠀　multishipper⠀　}}}$
 
