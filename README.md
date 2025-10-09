@@ -20,7 +20,7 @@ ${{\color{#827b72}\texttt{──　──　──　⊹　──　──　─
 
 ${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　fujoshi , himeoshi}}}$
 
-${{\color{#f5eee4}\texttt{comshipper⠀　multishipper⠀　}}}$
+${{\color{#f5eee4}\texttt{comshipper⠀　(dni pro/darkshippers)⠀　multishipper⠀　}}}$
 
 <div align="center">
   <a href="" target="_blank"><img width="300" src="https://files.catbox.moe/1ke5hk.png" alt="poop"></a>
