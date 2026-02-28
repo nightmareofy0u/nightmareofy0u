@@ -18,9 +18,9 @@ ${{\color{#f5eee4}\texttt{lesbian⠀⠀　adhd⠀⠀　two⠀spirited}}}$
 
 ${{\color{#827b72}\texttt{──　──　──　⊹　──　──　──}}}$
 
-${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　fujoshi , himeoshi}}}$
+${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　fanfic writer !!}}}$
 
-${{\color{#f5eee4}\texttt{comshipper⠀　(dni pro/darkshippers)⠀　multishipper⠀　}}}$
+${{\color{#f5eee4}\texttt{multishipper⠀　(dni pro/darkship)⠀　2016 player⠀　}}}$
 
 <div align="center">
   <a href="" target="_blank"><img width="300" src="https://files.catbox.moe/1ke5hk.png" alt="poop"></a>
