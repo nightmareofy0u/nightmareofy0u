@@ -11,7 +11,7 @@ ${{\color{#827b72}\texttt{──　──　──　୨୧　──　──　
 <p align="center">
 ${{\color{#f5eee4}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen}}}$<br>
 ${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　shipper﹗}}}$<br>
-  <a href= "https://act.greenpeace.ca/en-ca/stop-the-deep-sea-mining-code">save our seabed here!</a>
+  <a href= "https://github.com/bugz1nga">silly boy</a>
   <h3 align="center">
 ${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 
