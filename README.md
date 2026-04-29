@@ -18,3 +18,28 @@ ${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 <p align="center">  
 <img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵VICTIMS" alt=""/>
 </p>
+
+<p align="center" dir="auto"> 
+
+<table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
+<tr>
+<td>
+
+<details>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀⠀　before u int⠀⠀　</summary>
+
+<div style="color:#ded9bf; font-size:13px; line-height:1.5; text-align:left; margin-top:10px;">
+
+<p align="center">
+${{\color{#f5eee4}\texttt{⠀⠀⠀⠀}}}$<br>
+${{\color{#f5eee4}\texttt{im really shy... don't take it personally}}}$<br>
+${{\color{#f5eee4}\texttt{anti harassment regardless of the reason}}}$<br>
+${{\color{#f5eee4}\texttt{feel free to take inspo from my skins idrc}}}$<br>
+${{\color{#f5eee4}\texttt{if im next to someone weird pls let me}}}$<br>
+${{\color{#f5eee4}\texttt{know!!! I freely c+h a lot :P}}}$<br>
+
+<hr style="border:0; border-top:1px solid #493e4d; margin:10px 0;">
+<p align="center">
+${{\color{#f5eee4}\texttt{lastly slenderman is mine}}}$<br>
+${{\color{#f5eee4}\texttt{*keils all slenderman fangirls wif knef*}}}$<br>
+${{\color{#f5eee4}\texttt{HAHAHAHJAHA im pushing 20.}}}$<br>
