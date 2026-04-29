@@ -11,7 +11,7 @@ ${{\color{#827b72}\texttt{──　──　──　୨୧　──　──　
 <p align="center">
 ${{\color{#f5eee4}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen}}}$<br>
 ${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　shipper﹗}}}$<br>
-  <a href= "https://github.com/bugz1nga">silly boy</a>
+  <a href= "https://github.com/bugz1nga">silly boy</a>⠀<img src="https://cdn.discordapp.com/emojis/1290094248598704198.gif" width="20px">⠀<a href= "https://github.com/ManorMacabre">manor</a>
   <h3 align="center">
 ${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 
