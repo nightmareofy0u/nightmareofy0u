@@ -32,14 +32,14 @@ ${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 
 <p align="center">
 ${{\color{#f5eee4}\texttt{⠀⠀⠀⠀}}}$<br>
-${{\color{#f5eee4}\texttt{im really shy... don't take it personally}}}$<br>
-${{\color{#f5eee4}\texttt{anti harassment regardless of the reason}}}$<br>
-${{\color{#f5eee4}\texttt{feel free to take inspo from my skins idrc}}}$<br>
-${{\color{#f5eee4}\texttt{if im next to someone weird pls let me}}}$<br>
-${{\color{#f5eee4}\texttt{know!!! I freely c+h a lot :P}}}$<br>
+${{\color{#f5eee4}\texttt{*inspo on my skins or github is fine!}}}$<br>
+${{\color{#f5eee4}\texttt{*against beastiality, underaged and}}}$<br>
+${{\color{#f5eee4}\texttt{incest ship pairings. just no...}}}$<br>
+${{\color{#f5eee4}\texttt{*if im next to someone weird pls let}}}$<br>
+${{\color{#f5eee4}\texttt{me know!!! I freely c+h a lot}}}$<br>
 
 <hr style="border:0; border-top:1px solid #493e4d; margin:10px 0;">
 <p align="center">
-${{\color{#f5eee4}\texttt{lastly slenderman is mine}}}$<br>
-${{\color{#f5eee4}\texttt{*keils all slenderman fangirls wif knef*}}}$<br>
+${{\color{#f5eee4}\texttt{lastly slenderman is mine.}}}$<br>
+${{\color{#f5eee4}\texttt{*keils all its fangirls wif knef*}}}$<br>
 ${{\color{#f5eee4}\texttt{HAHAHAHJAHA im pushing 20.}}}$<br>
