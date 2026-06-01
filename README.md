@@ -1,22 +1,12 @@
-<p align="center">
-
-<img align="left" src="https://64.media.tumblr.com/2d9e7e4467118aee2ac5ed7f237fb5c1/500a09e1e4245351-f5/s2048x3072/be3f484323698cf468410da46c2cf506fa55900d.pnj" height="210px" alt="art commission"/><img src="https://64.media.tumblr.com/eff57582659a5dc1f3cff8d6fa1e1297/1bb9f39c1cc82c91-8f/s2048x3072/10ba2d48180927ffd650288f931eb769e5fecc78.pnj" width="300px"><img align="right" src="https://64.media.tumblr.com/d074a41ff625db05a1338d6442480de3/500a09e1e4245351-e4/s2048x3072/b1229fcf02523f3ec7761aeeed17a8711e6eb05c.pnj" height="210px" alt="art commission"/><br>
-</p>
   <h3 align="center">
-${{\color{#f5eee4}\texttt{𝖾𝗍𝖾𝗋𝗇𝖺𝗅𝗅𝗒 𝗒𝗈𝗎𝗋𝗌 , 𝖿𝗈𝗋𝖾𝗏𝖾𝗋 𝗆𝗂𝗇𝖾  ♡}}}$</h3>
-
+  ${{\color{#FFDBD1}\texttt{Dont let the weight of the world rob u of all ur}}}$ <a href= "https://open.spotify.com/track/0Nz9nyTqrvCIHmGCTOPxK0">charm</a>
+${{\color{#FFDBD1}\texttt{ ♡}}}$</h3>
+  <h3 align="center"><img src="https://64.media.tumblr.com/b005627959603ca4285c3784d952d3ed/a63e112035fe7be4-6b/s1280x1920/5dd476dddcedba2dd13ce52f804e8af1e55851b3.pnj" width="550px">
+    <p align="center">  
+  <h3 align="center"><img align="center" src="https://64.media.tumblr.com/f258ad23081ba5e1aeb6efca30bca176/aeb16ac4fff665db-5f/s640x960/67386ddf7c4476aa2efd0b1844f109bee1bf1781.pnj" height="350px" alt="bestfriends 4 ever"/>
 <p align="center">
-${{\color{#827b72}\texttt{──　──　──　୨୧　──　──　──}}}$
-  
-<p align="center">
-${{\color{#f5eee4}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen}}}$<br>
-${{\color{#f5eee4}\texttt{im⠀quiet⠀　mostly⠀w2i⠀　shipper﹗}}}$<br>
-  <h3 align="center">
-${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
-
-<p align="center">  
-<img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵VICTIMS" alt=""/>
-</p>
+${{\color{#FFDBD1}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen⠀⠀　im quiet}}}$<br>
+${{\color{#FFDBD1}\texttt{offtab／afk⠀　w2i⠀　c + h encouraged﹗⠀　iwc}}}$<br>
 
 <p align="center" dir="auto"> 
 
@@ -25,20 +15,40 @@ ${{\color{#f5eee4}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 <td>
 
 <details>
-<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀⠀　before u int⠀⠀　</summary>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀　　　🍒𓂃⠀　before u interact⠀⠀　⊹ ࣪ ˖　　　　⠀</summary>
 
-<div style="color:#ded9bf; font-size:13px; line-height:1.5; text-align:left; margin-top:10px;">
+<div style="color:#FFDBD1; font-size:13px; line-height:1.5; text-align:left; margin-top:10px;">
 
 <p align="center">
-${{\color{#f5eee4}\texttt{⠀⠀⠀⠀}}}$<br>
-${{\color{#f5eee4}\texttt{*inspo on my skins or github is fine!}}}$<br>
-${{\color{#f5eee4}\texttt{*against beastiality, underaged and}}}$<br>
-${{\color{#f5eee4}\texttt{incest ship pairings. just no...}}}$<br>
-${{\color{#f5eee4}\texttt{*if im next to someone weird pls let}}}$<br>
-${{\color{#f5eee4}\texttt{me know!!! I freely c+h a lot}}}$<br>
-
-<hr style="border:0; border-top:1px solid #493e4d; margin:10px 0;">
+  ${{\color{#FFDBD1}\texttt{⠀⠀⠀⠀}}}$<br>
+${{\color{#FFDBD1}\texttt{I dont like insensitive jokes or "dark humor". ex racism,}}}$<br>
+${{\color{#FFDBD1}\texttt{pedophillia, rape, incest etc. I dont get the joke...}}}$<br>
 <p align="center">
-${{\color{#f5eee4}\texttt{lastly slenderman is mine.}}}$<br>
-${{\color{#f5eee4}\texttt{*keils all its fangirls wif knef*}}}$<br>
-${{\color{#f5eee4}\texttt{HAHAHAHJAHA im pushing 20.}}}$<br>
+${{\color{#FFDBD1}\texttt{dont talk to me about disordered eating or self harm.}}}$<br>
+<p align="center">
+${{\color{#FFDBD1}\texttt{if ur under 18 please act appropriately around me.}}}$<br>
+<p align="center">
+${{\color{#FFDBD1}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
+<p align="center">
+${{\color{#FFDBD1}\texttt{im pretty chill dont be shy to say hi﹗( ≧ ⩊ ≦)}}}$<br>
+  <p align="center">
+${{\color{#FFDBD1}\texttt{inspiration is fine﹗just dont copy and paste}}}$<br>
+${{\color{#FFDBD1}\texttt{my ponies. github? copy it all u want!!! sharing is caring}}}$<br>
+<p align="center">
+${{\color{#FFDBD1}\texttt{super into eddsworld, creepypasta, dead by daylight,}}}$<br>
+${{\color{#FFDBD1}\texttt{tangotek, the pals, yhs／ts, mystreet, marble hornets}}}$<br>
+${{\color{#FFDBD1}\texttt{and SOOO much more... im fandom trash.}}}$<br>
+
+</div>
+</details>
+</td>
+</tr>
+</table>
+
+  <h3 align="center"><img src="https://64.media.tumblr.com/b005627959603ca4285c3784d952d3ed/a63e112035fe7be4-6b/s1280x1920/5dd476dddcedba2dd13ce52f804e8af1e55851b3.pnj" width="550px">
+    <h3 align="center">
+${{\color{#FFDBD1}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
+
+<p align="center">  
+<img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵EVERYPONY" alt=""/>
+</p>
