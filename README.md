@@ -46,7 +46,10 @@ ${{\color{#FFDBD1}\texttt{and SOOO much more... im fandom trash.}}}$<br>
 </table>
 
   <h3 align="center"><img src="https://64.media.tumblr.com/b005627959603ca4285c3784d952d3ed/a63e112035fe7be4-6b/s1280x1920/5dd476dddcedba2dd13ce52f804e8af1e55851b3.pnj" width="550px">
-    <h3 align="center">
+
+  <h3 align="center"><img align="center" src="https://64.media.tumblr.com/da9a8f75880dd447815fb81fe36cda3e/93a8fe5f041a7b2f-db/s1280x1920/a540e19b9c19fcc3fd6db4ab8b11fe6bc6714cc9.pnj" height="350px" alt="depression"/>
+
+<h3 align="center">
 ${{\color{#FFDBD1}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
 
 <p align="center">  
