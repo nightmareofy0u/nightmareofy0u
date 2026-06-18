@@ -24,7 +24,8 @@ ${{\color{#FFDBD1}\texttt{offtab／afk⠀　w2i⠀　c + h encouraged﹗⠀　iw
 ${{\color{#FFDBD1}\texttt{I dont like insensitive jokes or "dark humor". ex racism,}}}$<br>
 ${{\color{#FFDBD1}\texttt{pedophillia, rape, incest etc. I dont get the joke...}}}$<br>
 <p align="center">
-${{\color{#FFDBD1}\texttt{dont talk to me about disordered eating or self harm.}}}$<br>
+${{\color{#FFDBD1}\texttt{dont talk to me about disordered eating, self harm or}}}$<br>
+${{\color{#FFDBD1}\texttt{skipping meals/eating habits as Im sensitive to that stuff.}}}$<br>
 <p align="center">
 ${{\color{#FFDBD1}\texttt{if ur under 18 please act appropriately around me.}}}$<br>
 <p align="center">
