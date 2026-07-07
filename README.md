@@ -1,10 +1,12 @@
+  <h3 align="center"><img align="center" src="" alt=""/>
   <p align="center">  
-but what i dont kno , is whats inside of <a href= "https://open.spotify.com/track/03c607WjzTN0rxEv5eovMX">me</a><br>
+but what i dont know , is whats inside of <a href= "https://open.spotify.com/track/03c607WjzTN0rxEv5eovMX">me</a><br>
   <p align="center">  
   <h3 align="center"><img align="center" src="https://files.catbox.moe/1ft97d.png" height="350px" alt="bestfriends 4 ever"/>
 <p align="center">
-connerz　　he him　　18　　
+  <p align="center">  
 
+connerz　　he him　　18　　
 <p align="center" dir="auto"> 
 
 <table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
