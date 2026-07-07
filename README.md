@@ -1,12 +1,9 @@
-  <h3 align="center">
-  ${{\color{#FFDBD1}\texttt{Dont let the weight of the world rob u of all ur}}}$ <a href= "https://open.spotify.com/track/0Nz9nyTqrvCIHmGCTOPxK0">charm</a>
-${{\color{#FFDBD1}\texttt{ ♡}}}$</h3>
-  <h3 align="center"><img src="https://64.media.tumblr.com/b005627959603ca4285c3784d952d3ed/a63e112035fe7be4-6b/s1280x1920/5dd476dddcedba2dd13ce52f804e8af1e55851b3.pnj" width="550px">
-    <p align="center">  
-  <h3 align="center"><img align="center" src="https://64.media.tumblr.com/f258ad23081ba5e1aeb6efca30bca176/aeb16ac4fff665db-5f/s640x960/67386ddf7c4476aa2efd0b1844f109bee1bf1781.pnj" height="350px" alt="bestfriends 4 ever"/>
+  <p align="center">  
+but what i dont kno , is whats inside of <a href= "https://open.spotify.com/track/03c607WjzTN0rxEv5eovMX">me</a><br>
+  <p align="center">  
+  <h3 align="center"><img align="center" src="https://files.catbox.moe/1ft97d.png" height="350px" alt="bestfriends 4 ever"/>
 <p align="center">
-${{\color{#FFDBD1}\texttt{connerz⠀⠀　she⠀,⠀they⠀⠀　8teen⠀⠀　im quiet}}}$<br>
-${{\color{#FFDBD1}\texttt{offtab／afk⠀　w2i⠀　c + h encouraged﹗⠀　iwc}}}$<br>
+connerz　　he him　　18　　
 
 <p align="center" dir="auto"> 
 
@@ -15,44 +12,31 @@ ${{\color{#FFDBD1}\texttt{offtab／afk⠀　w2i⠀　c + h encouraged﹗⠀　iw
 <td>
 
 <details>
-<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀　　　🍒𓂃⠀　before u interact⠀⠀　⊹ ࣪ ˖　　　　⠀</summary>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">byi</summary>
 
 <div style="color:#FFDBD1; font-size:13px; line-height:1.5; text-align:left; margin-top:10px;">
 
 <p align="center">
-  ${{\color{#FFDBD1}\texttt{⠀⠀⠀⠀}}}$<br>
-${{\color{#FFDBD1}\texttt{I dont like insensitive jokes or "dark humor". ex racism,}}}$<br>
-${{\color{#FFDBD1}\texttt{pedophillia, rape, incest etc. I dont get the joke...}}}$<br>
+  <br>
+I dont like insensitive jokes. ex racism<br>
+pedophillia, rape, incest etc<br>
 <p align="center">
-${{\color{#FFDBD1}\texttt{dont talk to me about disordered eating, self harm or}}}$<br>
-${{\color{#FFDBD1}\texttt{skipping meals/eating habits as Im sensitive to that stuff.}}}$<br>
+dont talk to me about disordered eating<br>
+or skipping meals/eating habits<br>
 <p align="center">
-${{\color{#FFDBD1}\texttt{if ur under 18 please act appropriately around me.}}}$<br>
+if ur under 18 act appropriately around me
 <p align="center">
-${{\color{#FFDBD1}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
+────────────────────────<br>
 <p align="center">
-${{\color{#FFDBD1}\texttt{im pretty chill dont be shy to say hi﹗( ≧ ⩊ ≦)}}}$<br>
+im pretty chill dont be shy to say hi<br>
   <p align="center">
-${{\color{#FFDBD1}\texttt{inspiration is fine﹗just dont copy and paste}}}$<br>
-${{\color{#FFDBD1}\texttt{my ponies. github? copy it all u want!!! sharing is caring}}}$<br>
+inspiration is fine just dont copy and paste<br>
 <p align="center">
-${{\color{#FFDBD1}\texttt{super into eddsworld, creepypasta, dead by daylight,}}}$<br>
-${{\color{#FFDBD1}\texttt{tangotek, the pals, yhs／ts, mystreet, marble hornets}}}$<br>
-${{\color{#FFDBD1}\texttt{and SOOO much more... im fandom trash.}}}$<br>
+main fandoms are eddsworld, creepypasta<br>
+theatlanticcraft, yhs/ts and many more<br>
 
 </div>
 </details>
 </td>
 </tr>
 </table>
-
-  <h3 align="center"><img src="https://64.media.tumblr.com/b005627959603ca4285c3784d952d3ed/a63e112035fe7be4-6b/s1280x1920/5dd476dddcedba2dd13ce52f804e8af1e55851b3.pnj" width="550px">
-
-  <h3 align="center"><img align="center" src="https://64.media.tumblr.com/621a0861a0e3bcdb3ce180680e4412df/a092d69e4a54a3fc-5a/s1280x1920/be733537dff8d85dbb92fe8bf9fe12606248ae66.pnj" height="350px" alt="depression"/>
-
-<h3 align="center">
-${{\color{#FFDBD1}\texttt{⠀⠀thanks 4 visiting ☆⌒(ゝ。∂)}}}$</h3>
-
-<p align="center">  
-<img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵EVERYPONY" alt=""/>
-</p>
