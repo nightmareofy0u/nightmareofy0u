@@ -1,12 +1,19 @@
-  <h3 align="center"><img align="center" src="" alt=""/>
-  <p align="center">  
-but what i dont know , is whats inside of <a href= "https://open.spotify.com/track/03c607WjzTN0rxEv5eovMX">me</a><br>
-  <p align="center">  
-  <h3 align="center"><img align="center" src="https://files.catbox.moe/1ft97d.png" height="350px" alt="bestfriends 4 ever"/>
+${{\color{#}\texttt{　}}}$<br>
+<p align="center">  
+︵‿︵‿୨♡୧‿︵‿︵<br>
+${{\color{#}\texttt{　}}}$<br>
+${{\color{#}\texttt{he'll　want　to　feel　my　bones　against　his　skin}}}$<br>
+<!-- main img ^w^ -->
+  <h3 align="center"><img align="center" src="https://64.media.tumblr.com/586653dc18c248332894ca77916a3a57/baf0fcaa21dfdfb8-10/s540x810/2da47767d67d8ce050580f76b6a05822fc50a687.pnj" height="480px" alt="mreow"/>
+<!-- quick info -->
 <p align="center">
-  <p align="center">  
-
-connerz　　he him　　18　　
+${{\color{#}\texttt{꒰ㅤhe⠀,⠀himㅤ}}}$
+<img align="center" src="https://64.media.tumblr.com/96d9b2b34466d14aeffc68acde8fe083/e94f7b16f1ef17dc-ec/s540x810/1fce561934cbf4897102179cf94e051f5a257b16.pnj" height="70px" alt="stabstab"/>
+${{\color{#}\texttt{ㅤ8teen⠀♡ㅤ꒱}}}$<br>
+<p align="center">
+${{\color{#}\texttt{offtab／afk⠀　w2i⠀　c + h encouraged﹗⠀　iwc}}}$<br>
+${{\color{#}\texttt{⠀　}}}$<br>
+<!-- byi extend box sooo annoying -->
 <p align="center" dir="auto"> 
 
 <table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
@@ -14,31 +21,45 @@ connerz　　he him　　18　　
 <td>
 
 <details>
-<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">byi</summary>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">ㅤㅤㅤㅤbefore⠀u⠀interactㅤㅤㅤㅤ</summary>
 
 <div style="color:#FFDBD1; font-size:13px; line-height:1.5; text-align:left; margin-top:10px;">
 
 <p align="center">
-  <br>
-I dont like insensitive jokes. ex racism<br>
-pedophillia, rape, incest etc<br>
+  ${{\color{#FFDBD1}\texttt{⠀⠀⠀⠀}}}$<br>
+${{\color{#}\texttt{I dont like insensitive jokes. ex racism}}}$<br>
+${{\color{#}\texttt{pedophillia, rape, incest etc}}}$<br>
 <p align="center">
-dont talk to me about disordered eating<br>
-or skipping meals/eating habits<br>
+${{\color{#}\texttt{If ur under 18 act appropriately around me}}}$<br>
 <p align="center">
-if ur under 18 act appropriately around me
+${{\color{#}\texttt{Im a sensitive person,, pls don't be to mean}}}$<br>
+${{\color{#}\texttt{or leave without saying goodbye}}}$<br>
 <p align="center">
-────────────────────────<br>
+${{\color{#}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
 <p align="center">
-im pretty chill dont be shy to say hi<br>
+${{\color{#}\texttt{im pretty chill dont be shy to say hi﹗}}}$<br>
   <p align="center">
-inspiration is fine just dont copy and paste<br>
+${{\color{#}\texttt{inspiration is fine just dont copy and paste}}}$<br>
 <p align="center">
-main fandoms are eddsworld, creepypasta<br>
-theatlanticcraft, yhs/ts and many more<br>
+${{\color{#}\texttt{main fandoms are eddsworld, creepypasta}}}$<br>
+${{\color{#}\texttt{theatlanticcraft, yhs/ts and many more}}}$<br>
 
 </div>
 </details>
 </td>
 </tr>
 </table>
+<!-- divider durr -->
+${{\color{#}\texttt{⠀　}}}$<br>
+<p align="center">  
+︵‿︵‿୨♡୧‿︵‿︵<br>
+<h3 align="center">
+${{\color{#}\texttt{⠀⠀thanks furr visiting ﹗૮˶˃ᆺ˂˶ა⁩}}}$</h3>
+<!-- stamps aw sci ur stamps r so cute ur so cool -->
+<p align="center">
+<img src="https://64.media.tumblr.com/e0a687f99bba35e9bf6a689f22e808e2/cdaea49550b4aa3b-19/s100x200/8a65442f05c876cb4a68cf43dfdc4eba739d96a2.gifv" alt="stamp">
+<img src="https://64.media.tumblr.com/414c43d4c448f1a99cb592caa6f62229/cdaea49550b4aa3b-62/s100x200/ad4676743544a1a18737ed63b2cb7a16a24a2871.gifv" alt="stamp">
+<!-- finish bascially lul -->
+<p align="center">  
+<img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵𐂯﹒woof" alt=""/>
+</p>
