@@ -1,4 +1,14 @@
-${{\color{#}\texttt{　}}}$<br>
+<!-- 
+
+ㅤㅤㅤI hope u find what u forked my repository for
+
+                            ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ
+
+-->
+
 <p align="center">  
 ︵‿︵‿୨♡୧‿︵‿︵<br>
 <h3 align="center"><img align="center" src="https://64.media.tumblr.com/305d7ed322019b003823d9108e02edfa/f236309f2745f02c-a3/s2048x3072/8e58229968fc872d1257400436ddaceebae75381.pnj" height="36px" alt="lyrics"/>
