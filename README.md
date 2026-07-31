@@ -45,24 +45,24 @@ ${{\color{#}\texttt{⠀　}}}$<br>
 
 <p align="center">
   ${{\color{#FFDBD1}\texttt{⠀⠀⠀⠀}}}$<br>
-${{\color{#}\texttt{I dont like insensitive jokes. ex racism}}}$<br>
-${{\color{#}\texttt{pedophillia, rape, incest etc}}}$<br>
+${{\color{#EEEBF2}\texttt{I dont like insensitive jokes. ex racism}}}$<br>
+${{\color{#EEEBF2}\texttt{pedophillia, rape, incest etc}}}$<br>
 <p align="center">
-${{\color{#}\texttt{If ur under 18 act appropriately around me}}}$<br>
+${{\color{#EEEBF2}\texttt{If ur under 18 act appropriately around me}}}$<br>
 <p align="center">
-${{\color{#}\texttt{Im a sensitive person,, pls don't be to mean}}}$<br>
-${{\color{#}\texttt{I assume everyone hates me a lot}}}$<br>
+${{\color{#EEEBF2}\texttt{Im a sensitive person,, pls don't be to mean}}}$<br>
+${{\color{#EEEBF2}\texttt{I assume everyone hates me a lot}}}$<br>
 <p align="center">
 ${{\color{#d6807c}\texttt{dni zem because she likes toms feet}}}$<br>
 <p align="center">
-${{\color{#}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
+${{\color{#EEEBF2}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
 <p align="center">
-${{\color{#}\texttt{im pretty chill dont be shy to say hi﹗}}}$<br>
+${{\color{#EEEBF2}\texttt{im pretty chill dont be shy to say hi﹗}}}$<br>
   <p align="center">
-${{\color{#}\texttt{inspiration is fine just dont copy and paste}}}$<br>
+${{\color{#EEEBF2}\texttt{inspiration is fine just dont copy and paste}}}$<br>
 <p align="center">
-${{\color{#}\texttt{main fandoms are eddsworld, creepypasta}}}$<br>
-${{\color{#}\texttt{theatlanticcraft, yhs/ts and many more}}}$<br>
+${{\color{#EEEBF2}\texttt{main fandoms are eddsworld, creepypasta}}}$<br>
+${{\color{#EEEBF2}\texttt{theatlanticcraft, yhs/ts and many more}}}$<br>
 
 </div>
 </details>
