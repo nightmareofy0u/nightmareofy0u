@@ -53,6 +53,8 @@ ${{\color{#}\texttt{If ur under 18 act appropriately around me}}}$<br>
 ${{\color{#}\texttt{Im a sensitive person,, pls don't be to mean}}}$<br>
 ${{\color{#}\texttt{I assume everyone hates me a lot}}}$<br>
 <p align="center">
+${{\color{#d6807c}\texttt{dni zem because she likes toms feet}}}$<br>
+<p align="center">
 ${{\color{#}\texttt{──　──　──　୨୧　──　──　──}}}$<br>
 <p align="center">
 ${{\color{#}\texttt{im pretty chill dont be shy to say hi﹗}}}$<br>
