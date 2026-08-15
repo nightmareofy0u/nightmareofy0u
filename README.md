@@ -12,7 +12,7 @@
 stupid matt kinnie 　read my rentry plsss
 
 
-  <h3 align="center"><img align="center" src="https://pbs.twimg.com/media/HPZdk26bEAADzxj?format=jpg&name=900x900" height="300px" alt="DAB"/>
+  <h3 align="center"><img align="center" src="https://files.catbox.moe/kmzg0r.jpg" height="400px" alt="DAB"/>
     
 　
 <p align="center">
