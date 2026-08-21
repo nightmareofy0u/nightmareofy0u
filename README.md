@@ -12,7 +12,7 @@
 stupid matt kinnie 　read my rentry plsss
 
 
-  <h3 align="center"><img align="center" src="https://files.catbox.moe/02xg93.webp" height="350px" alt="DAB"/>
+  <p align="center" dir="auto"><a target="_blank" rel="GANG" href=><img src="https://files.catbox.moe/8vv4sh.gif" style="max-width: 100%;"></a> <br/>
     
 　
 <p align="center">
