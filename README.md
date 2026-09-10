@@ -8,7 +8,7 @@
                           じしˍ,)ノ
 
 -->
-  <h3 align="left"><img align="left" src="https://files.catbox.moe/x92huy.png" height="350px" alt="mreow"/> <p align="center">
+  <h3 align="left"><img align="left" src="https://files.catbox.moe/7ypeso.jpg" height="350px" alt="mreow"/> <p align="center">
 <img src="https://64.media.tumblr.com/0809c209d7db86b434062ec0a3ef3c38/1207f0591e56a82c-e4/s2048x3072/70c429bd1bf0aff15c82fbf1b652906da20e54a0.pnj" width="500" align="middle">
 
 <p align="center">
