@@ -13,7 +13,7 @@ ${{\color{#}\texttt{ㅤ}}}$<br>
 <p align="center">  
 ︵‿︵‿୨♡୧‿︵‿︵<br>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=689CC5&center=true&vCenter=true&width=500&height=25&lines=if+ur+lost+u+can+look+and+u+will+find+me;time+after+time+%3C3)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=689CC5&center=true&vCenter=true&width=500&height=25&lines=if+ur+lost+u+can+look+and+u+will+find+me;time+after+time+%3C3)](https://git.io/typing-svg)
 <!-- main img ^w^ -->
 <h3 align="center"><img align="center" src="https://64.media.tumblr.com/2c868ea8e218c7e716291a1b6ed74c9b/ad4a7b120383c53d-cb/s540x810/a138dca3d1cd4a385b2c20629abf2cbe055a842e.pnj" height="450px" alt="@cloudyfish8"/>
 <!-- quick info -->
