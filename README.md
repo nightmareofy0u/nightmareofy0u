@@ -8,8 +8,6 @@
                           じしˍ,)ノ
 
 -->
-<p align="center">
-${{\color{#}\texttt{ㅤ}}}$<br>
 <p align="center">  
 ︵‿︵‿୨♡୧‿︵‿︵<br>
 
