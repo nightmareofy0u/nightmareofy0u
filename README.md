@@ -28,10 +28,9 @@ ${{\color{#91A2AA}\texttt{offtab}}}$
 ${{\color{#}\texttt{／}}}$
 ${{\color{#689CC5}\texttt{afk⠀　}}}$
 ${{\color{#91A2AA}\texttt{w2i⠀　}}}$
-${{\color{#689CC5}\texttt{c }}}$
-${{\color{#}\texttt{+ }}}$
-${{\color{#689CC5}\texttt{h  encouraged﹗⠀　}}}$
-${{\color{#91A2AA}\texttt{iwc}}}$<br>
+${{\color{#689CC5}\texttt{suspected}}}$
+${{\color{#91A2AA}\texttt{AVPD⠀　}}}$
+${{\color{#}\texttt{iwc}}}$<br>
 
 <!-- divider durr -->
 <p align="center">
