@@ -35,7 +35,8 @@ ${{\color{#}\texttt{iwc}}}$<br>
 ︵‿︵‿୨♡୧‿︵‿︵<br>
 <p align="center">
 <a href="https://rentry.co/mattsworld">rentry</a>⠀　<a href="https://nightmareofy0u.atabook.org/">atabook</a>
-<p align="center">
-${{\color{#}\texttt{ㅤ}}}$<br>
+<p align="center"><br>
+
+
 <img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=689CC5&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵𐂯﹒woof" alt=""/>
 </p>
