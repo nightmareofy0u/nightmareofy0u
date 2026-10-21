@@ -33,7 +33,8 @@ ${{\color{#}\texttt{iwc}}}$<br>
 <!-- divider durr -->
 <p align="center">
 ︵‿︵‿୨♡୧‿︵‿︵<br>
-<!-- finish bascially lul -->
+<p align="center">
+<a href="https://rentry.co/mattsworld">rentry</a>⠀　<a href="https://nightmareofy0u.atabook.org/">atabook</a>
 <p align="center">
 ${{\color{#}\texttt{ㅤ}}}$<br>
 <img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=689CC5&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵𐂯﹒woof" alt=""/>
