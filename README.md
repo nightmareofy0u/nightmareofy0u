@@ -12,20 +12,19 @@
 <img src="https://64.media.tumblr.com/21c28387eeabd9a92a8fbd8f1979b7ec/72f586a7f1a51f24-1d/s1280x1920/da1e0ca8216b2a9303ae2938fa4698887c5bd24e.pnj" width="450" align="middle">
 
 <p align="center">
-${{\color{#9B4013}\texttt{adult ◞   }}}$
-${{\color{#7D5233}\texttt{usually  }}}$
-${{\color{#66604C}\texttt{offtabㅤ}}}$
-${{\color{#66604C}\texttt{w2i !ㅤ}}}$
-${{\color{#4D6F66}\texttt{minors  }}}$
-${{\color{#238892}\texttt{iwc}}}$<br>
-${{\color{#9B4013}\texttt{c+h  }}}$
-${{\color{#9B4013}\texttt{is  }}}$
-${{\color{#7D5233}\texttt{ok  }}}$
-${{\color{#7D5233}\texttt{if  }}}$
-${{\color{#66604C}\texttt{im  }}}$
-${{\color{#66604C}\texttt{alone  }}}$
-${{\color{#4D6F66}\texttt{otherwise  }}}$
-${{\color{#238892}\texttt{ask}}}$<br>
+${{\color{#}\texttt{꒰ㅤ}}}$
+${{\color{#689CC5}\texttt{he⠀,⠀himㅤ}}}$
+<img align="center" src="https://64.media.tumblr.com/fb0b9fc7384cd20092d87c205ba18e1b/a31409e6feae4c1e-11/s1280x1920/603935d850e1a9a2543d198134dbced3798fa3ea.pnj" height="40px" alt="hachi"/>
+${{\color{#91A2AA}\texttt{ㅤ9teen⠀♡}}}$
+${{\color{#}\texttt{ㅤ꒱}}}$<br>
+<p align="center">
+${{\color{#91A2AA}\texttt{offtab}}}$
+${{\color{#}\texttt{／}}}$
+${{\color{#689CC5}\texttt{afk⠀　}}}$
+${{\color{#91A2AA}\texttt{w2i⠀　}}}$
+${{\color{#689CC5}\texttt{suspected}}}$
+${{\color{#91A2AA}\texttt{AVPD⠀　}}}$
+${{\color{#}\texttt{iwc}}}$<br>
 ${{\color{#66604C}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 
 <div align="center">
