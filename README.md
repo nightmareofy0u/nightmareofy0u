@@ -14,7 +14,7 @@
 <p align="center">
 ${{\color{#}\texttt{꒰ㅤ}}}$
 ${{\color{#689CC5}\texttt{he⠀,⠀himㅤ}}}$
-<img align="center" src="https://64.media.tumblr.com/fb0a9acb0518432021d540634d76fb01/d8485cd6475050ad-8a/s2048x3072/b67a6169634b97d7fd60e2d3f5f878dfdbc92d1e.pnj" height="40px" alt="hachi"/>
+<img align="center" src="https://64.media.tumblr.com/fb0a9acb0518432021d540634d76fb01/d8485cd6475050ad-8a/s2048x3072/b67a6169634b97d7fd60e2d3f5f878dfdbc92d1e.pnj" height="30px" alt="hachi"/>
 ${{\color{#91A2AA}\texttt{ㅤ9teen⠀♡}}}$
 ${{\color{#}\texttt{ㅤ꒱}}}$<br>
 <p align="center">
@@ -25,6 +25,7 @@ ${{\color{#91A2AA}\texttt{w2i⠀　}}}$
 ${{\color{#689CC5}\texttt{suspected}}}$
 ${{\color{#91A2AA}\texttt{AVPD⠀　}}}$
 ${{\color{#}\texttt{iwc}}}$<br>
+<p align="center">
 ${{\color{#66604C}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 
 <div align="center">
