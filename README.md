@@ -13,9 +13,9 @@
 
 <p align="center">
 ${{\color{#}\texttt{꒰ㅤ}}}$
-${{\color{#689CC5}\texttt{he⠀,⠀himㅤ}}}$
+${{\color{#6A1B1C}\texttt{he⠀,⠀himㅤ}}}$
 <img align="center" src="https://64.media.tumblr.com/fb0a9acb0518432021d540634d76fb01/d8485cd6475050ad-8a/s2048x3072/b67a6169634b97d7fd60e2d3f5f878dfdbc92d1e.pnj" height="30px" alt="hachi"/>
-${{\color{#91A2AA}\texttt{ㅤ9teen⠀♡}}}$
+${{\color{#B01111}\texttt{ㅤ9teen⠀♡}}}$
 ${{\color{#}\texttt{ㅤ꒱}}}$<br>
 <p align="center">
 ${{\color{#91A2AA}\texttt{offtab}}}$
