@@ -13,20 +13,22 @@
 
 <p align="center">
 ${{\color{#}\texttt{꒰ㅤ}}}$
-${{\color{#6A1B1C}\texttt{he⠀,⠀himㅤ}}}$
+${{\color{#821517}\texttt{he⠀,}}}$
+${{\color{#C21515}\texttt{⠀himㅤ}}}$
 <img align="center" src="https://64.media.tumblr.com/fb0a9acb0518432021d540634d76fb01/d8485cd6475050ad-8a/s2048x3072/b67a6169634b97d7fd60e2d3f5f878dfdbc92d1e.pnj" height="30px" alt="hachi"/>
-${{\color{#B01111}\texttt{ㅤ9teen⠀♡}}}$
+${{\color{#F90101}\texttt{ㅤ9}}}$
+${{\color{#FF585A}\texttt{teen}}}$
+${{\color{#FFA2A2}\texttt{⠀♡}}}$
 ${{\color{#}\texttt{ㅤ꒱}}}$<br>
 <p align="center">
-${{\color{#91A2AA}\texttt{offtab}}}$
+${{\color{#821517}\texttt{offtab}}}$
 ${{\color{#}\texttt{／}}}$
-${{\color{#689CC5}\texttt{afk⠀　}}}$
-${{\color{#91A2AA}\texttt{w2i⠀　}}}$
-${{\color{#689CC5}\texttt{suspected}}}$
-${{\color{#91A2AA}\texttt{AVPD⠀　}}}$
-${{\color{#}\texttt{iwc}}}$<br>
+${{\color{#C21515}\texttt{afk⠀　}}}$
+${{\color{#F90101}\texttt{w2i⠀　}}}$
+${{\color{#FF585A}\texttt{avoidant⠀　}}}$
+${{\color{#FFA2A2}\texttt{iwc}}}$<br>
 <p align="center">
-${{\color{#66604C}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
+${{\color{#}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 
 <div align="center">
 <a href="https://rentry.co/mattsworld"><img src="https://64.media.tumblr.com/6547f4412059c601f6a51e01e9113a83/3538ed3b6c853ad0-7f/s400x600/c1cd5c1ac956841f06be41c0647cd16398d17a9f.pnj"width="150"></img></a> ㅤ<a href="https://nightmareofy0u.atabook.org/"><img src="https://64.media.tumblr.com/106c6dd94811c548161735e43423724a/3538ed3b6c853ad0-3a/s400x600/3fb2ed1f94096caa8934d6337fef13cd4231ed9f.pnj"width="190"></img><br>
