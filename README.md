@@ -9,7 +9,7 @@
 
 -->
   <h3 align="left"><img align="left" src="https://64.media.tumblr.com/b69b33994c2122ad1115e0ae83cfa2d2/97c000263fed27aa-ec/s1280x1920/4e9662bb628771fa5ca3c2b91b8e8aa5dd09532b.pnj" height="350px" alt="mreow"/> <p align="center">
-<img src="https://64.media.tumblr.com/01ce3d341bb7a87e3d55deaea91e97a2/77045b61c3d31f7f-f7/s2048x3072/3a6d81731962c79b542178d0adfc6d8a7482d39f.pnj" width="400" align="middle">
+<img src="https://64.media.tumblr.com/21c28387eeabd9a92a8fbd8f1979b7ec/72f586a7f1a51f24-1d/s1280x1920/da1e0ca8216b2a9303ae2938fa4698887c5bd24e.pnj" width="400" align="middle">
 
 <p align="center">
 ${{\color{#8a7871}\texttt{ugly⠀⠀work⠀⠀in⠀⠀progress⠀⠀blehhh}}}$<br>
