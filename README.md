@@ -8,34 +8,17 @@
                           じしˍ,)ノ
 
 -->
-<p align="center">  
-︵‿︵‿୨♡୧‿︵‿︵<br>
+  <h3 align="left"><img align="left" src="https://64.media.tumblr.com/b69b33994c2122ad1115e0ae83cfa2d2/97c000263fed27aa-ec/s1280x1920/4e9662bb628771fa5ca3c2b91b8e8aa5dd09532b.pnj" height="350px" alt="mreow"/> <p align="center">
+<img src="https://64.media.tumblr.com/0809c209d7db86b434062ec0a3ef3c38/1207f0591e56a82c-e4/s2048x3072/70c429bd1bf0aff15c82fbf1b652906da20e54a0.pnj" width="500" align="middle">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=689CC5&center=true&vCenter=true&width=500&height=25&lines=if+ur+lost+u+can+look+and+u+will+find+me;time+after+time+%3C3)](https://git.io/typing-svg)
-<!-- main img ^w^ -->
-<h3 align="center"><img align="center" src="https://64.media.tumblr.com/2c868ea8e218c7e716291a1b6ed74c9b/ad4a7b120383c53d-cb/s540x810/a138dca3d1cd4a385b2c20629abf2cbe055a842e.pnj" height="430px" alt="@cloudyfish8"/>
-<!-- quick info -->
 <p align="center">
-${{\color{#}\texttt{꒰ㅤ}}}$
-${{\color{#689CC5}\texttt{he⠀,⠀himㅤ}}}$
-<img align="center" src="https://64.media.tumblr.com/fb0b9fc7384cd20092d87c205ba18e1b/a31409e6feae4c1e-11/s1280x1920/603935d850e1a9a2543d198134dbced3798fa3ea.pnj" height="40px" alt="hachi"/>
-${{\color{#91A2AA}\texttt{ㅤ9teen⠀♡}}}$
-${{\color{#}\texttt{ㅤ꒱}}}$<br>
-<p align="center">
-${{\color{#91A2AA}\texttt{offtab}}}$
-${{\color{#}\texttt{／}}}$
-${{\color{#689CC5}\texttt{afk⠀　}}}$
-${{\color{#91A2AA}\texttt{w2i⠀　}}}$
-${{\color{#689CC5}\texttt{suspected}}}$
-${{\color{#91A2AA}\texttt{AVPD⠀　}}}$
-${{\color{#}\texttt{iwc}}}$<br>
+${{\color{#8a7871}\texttt{ugly⠀⠀work⠀⠀in⠀⠀progress⠀⠀blehhh}}}$<br>
+${{\color{#8a7871}\texttt{dni⠀⠀proship⠀⠀and⠀⠀any⠀⠀other⠀⠀varients}}}$<br>
 
-<!-- divider durr -->
-<p align="center">
-︵‿︵‿୨♡୧‿︵‿︵<br>
-<p align="center">
-<a href="https://rentry.co/mattsworld">rentry</a>⠀　<a href="https://nightmareofy0u.atabook.org/">atabook</a>
-<p align="center"><br>
+<div align="center">
+<a href="https://rentry.co/mattsworld"><img src="https://64.media.tumblr.com/6547f4412059c601f6a51e01e9113a83/3538ed3b6c853ad0-7f/s400x600/c1cd5c1ac956841f06be41c0647cd16398d17a9f.pnj"width="170"></img></a> ㅤ<a href="https://nightmareofy0u.atabook.org/"><img src="https://64.media.tumblr.com/106c6dd94811c548161735e43423724a/3538ed3b6c853ad0-3a/s400x600/3fb2ed1f94096caa8934d6337fef13cd4231ed9f.pnj"width="210"></img><br>
+  <br>
 
-<img src="https://komarev.com/ghpvc/?username=nightmareofy0u&style=flat-square&color=689CC5&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵𐂯 woof" alt=""/>
-</p>
+<img src="https://64.media.tumblr.com/0a38b6c3f351dae7c9d8a959f61ede55/d9c51610d6094ad9-aa/s100x200/739bbf8a2964615934d04e5cc581255a68d9ac7e.gifv" alt="stamp">
+<img src="https://64.media.tumblr.com/b5687eb1e04d73d7f53f1c8afede1921/478562beb447ce44-f0/s100x200/cf228ceca58267607e0fd35e7a4e0e4bae10ecf2.pnj" alt="stamp">
+<img src="https://64.media.tumblr.com/9910a6e3df5f0d41a89f4cca7bd800f7/2c00f6b432aa36cd-ce/s100x200/f63cf6d23b530e9d13c5faa7547ece9cd2ac1509.gifv" alt="stamp">
