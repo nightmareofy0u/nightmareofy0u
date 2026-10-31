@@ -26,6 +26,7 @@ ${{\color{#}\texttt{／}}}$
 ${{\color{#C21515}\texttt{afk⠀　}}}$
 ${{\color{#F90101}\texttt{w2i⠀　}}}$
 ${{\color{#FF585A}\texttt{avoidant⠀　}}}$
+${{\color{#FF585A}\texttt{c+h⠀　}}}$
 ${{\color{#FFA2A2}\texttt{iwc}}}$<br>
 <p align="center">
 ${{\color{#}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
