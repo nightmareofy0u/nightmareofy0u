@@ -40,3 +40,5 @@ ${{\color{#}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 <img src="https://64.media.tumblr.com/e3dd3be2e2bee6ca327dbe12c4163b84/38a58c42f8d8c5e7-b6/s100x200/3e73a81cb78c6fcdb3429175b057f670215f108f.gifv" alt="stamp">
 <img src="https://64.media.tumblr.com/2e1289307d548ce1d8b0ed9e63b39ea3/38a58c42f8d8c5e7-a4/s100x200/0591650e812f02d34e82d53c1652399a0c9c4e87.pnj" alt="stamp">
 <img src="https://64.media.tumblr.com/d6ced4413ebb29164b19e994566b9eb3/38a58c42f8d8c5e7-67/s100x200/17c5c928e8f775a13218f8789fe8347a2177cbcd.webp" alt="stamp">
+
+<sub>This text is smaller.</sub>
