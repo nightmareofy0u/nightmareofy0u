@@ -42,7 +42,7 @@ ${{\color{#}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 <img src="https://64.media.tumblr.com/d6ced4413ebb29164b19e994566b9eb3/38a58c42f8d8c5e7-67/s100x200/17c5c928e8f775a13218f8789fe8347a2177cbcd.webp" alt="stamp">
 
 
-
+<br>
 
 
 
