@@ -37,6 +37,6 @@ ${{\color{#}\texttt{︵‿︵‿୨♡୧‿︵‿︵}}}$<br>
 <a href="https://rentry.co/mattsworld"><img src="https://64.media.tumblr.com/6547f4412059c601f6a51e01e9113a83/3538ed3b6c853ad0-7f/s400x600/c1cd5c1ac956841f06be41c0647cd16398d17a9f.pnj"width="140"></img></a> ㅤ<a href="https://nightmareofy0u.atabook.org/"><img src="https://64.media.tumblr.com/106c6dd94811c548161735e43423724a/3538ed3b6c853ad0-3a/s400x600/3fb2ed1f94096caa8934d6337fef13cd4231ed9f.pnj"width="180"></img><br>
   <br>
 
-<img src="https://64.media.tumblr.com/0a38b6c3f351dae7c9d8a959f61ede55/d9c51610d6094ad9-aa/s100x200/739bbf8a2964615934d04e5cc581255a68d9ac7e.gifv" alt="stamp">
-<img src="https://64.media.tumblr.com/b5687eb1e04d73d7f53f1c8afede1921/478562beb447ce44-f0/s100x200/cf228ceca58267607e0fd35e7a4e0e4bae10ecf2.pnj" alt="stamp">
-<img src="https://64.media.tumblr.com/9910a6e3df5f0d41a89f4cca7bd800f7/2c00f6b432aa36cd-ce/s100x200/f63cf6d23b530e9d13c5faa7547ece9cd2ac1509.gifv" alt="stamp">
+<img src="https://64.media.tumblr.com/e3dd3be2e2bee6ca327dbe12c4163b84/38a58c42f8d8c5e7-b6/s100x200/3e73a81cb78c6fcdb3429175b057f670215f108f.gifv" alt="stamp">
+<img src="https://64.media.tumblr.com/2e1289307d548ce1d8b0ed9e63b39ea3/38a58c42f8d8c5e7-a4/s100x200/0591650e812f02d34e82d53c1652399a0c9c4e87.pnj" alt="stamp">
+<img src="https://64.media.tumblr.com/d6ced4413ebb29164b19e994566b9eb3/38a58c42f8d8c5e7-67/s100x200/17c5c928e8f775a13218f8789fe8347a2177cbcd.webp" alt="stamp">
